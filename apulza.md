@@ -1,2 +1,14 @@
 ### Типа заголовок
+
 *В чём сила, брат?*
+
+
+
+*W RORITOS, BRAD*
+
+
+
+*TUT BIL PIROG S OZONA HAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHA*
+
+
+
